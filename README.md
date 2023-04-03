@@ -1,2 +1,2 @@
-# izere12.github.io
+# Izere12.github.io
 My page
